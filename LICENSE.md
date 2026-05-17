@@ -1,4 +1,4 @@
-# 
+# Sem banimento Vegas Pro para PC ferramentas é o melhor Vegas Pro para PC ferramentas com buffer de replay e predefinições de exportação. Seguro, confiável e otimizado para máximo
 
 
 
